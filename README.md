@@ -13,6 +13,8 @@ PERSONAL OPINION: DON'T WASTE YOUR MONEY ON TWEAKING SERVICES/PROGRAMS, THE TWEA
 Guides I recommend checking out : 
 
 https://github.com/BoringBoredom/PC-Optimization-Hub
+
+
 https://docs.google.com/document/d/1c2-lUJq74wuYK1WrA_bIvgb89dUN0sj8-hO3vqmrau4/edit
 
 Also don't trust imribiy he is a 40 y/o boomer who likes licking 12 Y/o kids toes who plays fortnite.... 
