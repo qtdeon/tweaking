@@ -1,5 +1,5 @@
 # tweaking
-simple tweaking information
+basic tweaking information
 
 THIS GUIDE ISN'T THAT ADVANCED AND THERE IS MANY GUIDES WHICH GOES MORE IN DETAIL WAY MORE!
 
